@@ -1,1 +1,1 @@
-# Gyakorlas
+# Gyakorlás
